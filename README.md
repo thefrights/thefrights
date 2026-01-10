@@ -8,7 +8,7 @@
 
 <p align="left">
 <p align="center" dir="auto">
- <a href="https://rentry.co/loomissmacher">matching rentry</a>  <a href="https://rentry.co/keeryheaton"> 2 rentry</a>  <br><a href="https://jbyers.straw.page/">straw</a><br>
+ <a href="https://rentry.co/loomissmacher">matching rentry,</a>  <a href="https://rentry.co/keeryheaton"> 2 rentry</a>  <br><a href="https://jbyers.straw.page/">straw</a><br>
 
 
 ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31emw27hdnz23bbvfx4humhc7cjq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=786745&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
