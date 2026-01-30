@@ -4,4 +4,4 @@
 
 <div align="center">
  
-<img src="https://i.pinimg.com/originals/44/16/1e/44161e9d5e1c95d774669d1eff886179.gif" width="450" height="500" alt="Image"/> <br/>
+<img src="https://files.catbox.moe/f2wjsi.png" width="450" height="500" alt="Image"/> <br/>
