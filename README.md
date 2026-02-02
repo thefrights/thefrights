@@ -4,7 +4,7 @@
 @zombleboy dni
 <div align="center">
  
-<img src="https://files.catbox.moe/m3yvnl.png" width="450" height="500" alt="Image"/> <br/>
+<img src="https://files.catbox.moe/0mb52h.png" width="450" height="500" alt="Image"/> <br/>
 
 ﹒　 　　ricky / charlie 𓈒
 he ˒ him　　†　　3teen　ISTP-T
