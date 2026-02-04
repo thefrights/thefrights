@@ -4,7 +4,7 @@
 @zombleboy dni, Hi i love my friendies @fIowerboy @vysters @b-e-e-d-z 😳😳😳😳😳
 <div align="center">
  
-<img src="https://files.catbox.moe/0mb52h.png" width="450" height="500" alt="Image"/> <br/>
+<img src="https://i.pinimg.com/originals/6f/35/62/6f35626111918e0a4f2e8c169fd82608.gif" width="450" height="500" alt="Image"/> <br/>
 
 ﹒　 　　ricky / charlie 𓈒
 he ˒ him　　†　　3teen　ISTP-T
