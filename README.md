@@ -1,15 +1,18 @@
 
 ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31emw27hdnz23bbvfx4humhc7cjq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=786745&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-@zombleboy dni, Hi i love my friendies @fIowerboy @vysters @b-e-e-d-z 😳😳😳😳😳
-<div align="center">
- 
-<img src="https://i.pinimg.com/originals/6f/35/62/6f35626111918e0a4f2e8c169fd82608.gif" width="450" height="500" alt="Image"/> <br/>
 
-﹒　 　　ricky / charlie 𓈒
-he ˒ him　　†　　3teen　ISTP-T
-⠀⠀literally charlie heaton⠀ᴗ͈ ⫟ ᴗ͈
-　<img src="https://64.media.tumblr.com/c8c09e5aae521618df8916a2af7278f6/0a844093c4702aee-9f/s100x200/9019fa63a421dc6e09d4c490fa2cbf06b66b11af.pnj" width="90" height="90" alt="Image"/> <br/>
+ㅤ
+
+ㅤ
+
+<p align="center">† ㅤㅤricky ㅤㅤcharlie ㅤㅤ13-15 ㅤㅤmale ㅤㅤhe him ㅤ ㅤㅤ.</p>
+<p align="center">  ㅤ dms ㅤ ㅤasks ㅤfrqs ㅤ ㅤsingle ㅤbipolar ㅤ+ ㅤdepression ㅤ</p>
+
+ㅤ
+
+
+
 
 <br>  
 <p align="left">
