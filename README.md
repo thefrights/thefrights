@@ -18,7 +18,3 @@
 
 
 
-<br>  
-<p align="left">
-<p align="right" dir="auto">
- <a href="https://rentry.co/thefrights">rentry</a>  <a href="https://strangerthings.atabook.org/">ata</a>  
