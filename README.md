@@ -10,8 +10,8 @@
 </br>
 ㅤ
 
-<p align="center">† ㅤㅤricky ㅤㅤcharlie ㅤㅤ13-15 ㅤㅤmale ㅤㅤhe him ㅤ ㅤㅤ.</p>
-<p align="center">  ㅤ dms ㅤ ㅤasks ㅤfrqs ㅤ ㅤsingle ㅤbipolar ㅤ+ ㅤdepression ㅤ</p>
+<p align="center"> ricky / tony </p>
+<p align="center">  ㅤ <a href="https://rentry.co/thefrights">go ⠀away</a>  ⠀  <a href="https://strangerthings.atabook.org/"> don't ⠀come  ⠀ back ⠀  here ⠀anymore ⠀</a>   ㅤ</p>
 
 ㅤ
 
