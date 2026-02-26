@@ -11,7 +11,7 @@
 ㅤ
 
 <p align="center"> ricky / tony </p>
-<p align="center">  ㅤ <a href="https://rentry.co/thefrights">go ⠀away</a>  ⠀  <a href="https://strangerthings.atabook.org/"> don't ⠀come  ⠀ back ⠀  here ⠀anymore ⠀</a>   ㅤ</p>
+<p align="center">  ㅤ <a href="https://rentry.co/thefrights">I need ⠀nobody</a>  ⠀  <a href="https://strangerthings.atabook.org/"> but ⠀you  ⠀ in ⠀  my ⠀mind ⠀</a>   ㅤ</p>
 
 ㅤ
 
