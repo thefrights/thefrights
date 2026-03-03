@@ -5,7 +5,7 @@
 
 
 ㅤ<p align="center">
-<img src="https://files.catbox.moe/6zt5l1.png" width="450" height="400" alt="Image"/>
+<img src="https://i.pinimg.com/originals/24/ea/f9/24eaf9337fcbac31564e8a365f41329f.gif" width="450" height="400" alt="Image"/>
 </p>
 </br>
 ㅤ
