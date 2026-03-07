@@ -5,7 +5,7 @@
 
 
 ㅤ<p align="center">
-<img src="https://i.pinimg.com/originals/3f/16/7c/3f167ca80248663a2de89313a9a386b2.gif" width="450" height="400" alt="Image"/>
+<img src="https://i.pinimg.com/736x/ea/c2/42/eac242d742676f28c741ca6a47c2d174.jpg" width="450" height="400" alt="Image"/>
 </p>
 </br>
 ㅤ
