@@ -7,7 +7,7 @@
 
 </p>
 <p align="center">
-Ɛ⠀⠀<a href="https://rentry.co/thefrights">tears</a>⠀⠀<a href="https://rentry.co/britishactor">tug</a>⠀⠀at <br>
+⠀⠀<a href="https://rentry.co/thefrights">tears</a>⠀⠀<a href="https://rentry.co/britishactor">tug</a>⠀⠀at <br>
 the⠀⠀corners⠀⠀of⠀⠀my⠀⠀eyes⠀⠀♡⠀⠀♡
 </p>
 
