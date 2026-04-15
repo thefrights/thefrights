@@ -8,7 +8,7 @@
 
 
 <p align="center">
-<img src="https://file.garden/Z5mN_c00uBbBeG_n/rentry/burgerbuns/actual%20burgerbuns/pngs%20or%20gifs/gifs/brown/ezgif-4853538831e712.gif"width="400"/>
+<img src="https://litter.catbox.moe/5i4qz9viykh5oxtf.png"width="400"/>
 </p>
 
 <p align="center">
