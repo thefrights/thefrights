@@ -8,7 +8,7 @@
 
 
 <p align="center">
-<img src="https://litter.catbox.moe/5i4qz9viykh5oxtf.png"width="400"/>
+<img src="https://i.postimg.cc/nhHGBr64/IMG_5866.gif"width="400"/>
 </p>
 
 <p align="center">
