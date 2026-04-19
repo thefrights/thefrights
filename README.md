@@ -32,7 +32,7 @@
   <!-- DNI -->
    <br>
 <p align="left">
-<ins><b><em>dni</em></b></ins> sensitve people⠀  vizziepop ⠀ tcoall  ⠀ no dni really.
+<ins><b><em>dni</em></b></ins> sensitve people(some)⠀  vizziepop ⠀ tcoall  ⠀ no dni really.
 
 
      
